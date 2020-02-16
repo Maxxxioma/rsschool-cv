@@ -1,1 +1,1 @@
-# rsschool-cv
+https://maxxxioma.github.io/rsschool-cv/cv
